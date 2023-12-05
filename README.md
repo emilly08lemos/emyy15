@@ -1,1 +1,2 @@
-# emyy15
+#o uso dos celulare com os jovens
+ No muno hoje em dia e muito comum ser vistos crianças e adolescentes desde muito cedo no celular,96% estao na media globale 95% afirmaram uar o aparelho dese muito cedo.ao muito usados para jogos e aulas online e seus pais andam preucupados com a quantidade de tempo que sues filhos estao consumino no celular 
